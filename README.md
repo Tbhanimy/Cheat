@@ -1,2 +1,2 @@
 # Cheat
-Cheat and hold mentality 
+tbh c me all g w am s s a o e
